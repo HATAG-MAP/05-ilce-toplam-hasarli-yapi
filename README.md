@@ -1,0 +1,1 @@
+# 05-ilce-toplam-hasarli-yapi
